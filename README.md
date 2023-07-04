@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @multikro
+- 🌱 I’m freshman, currently learning basics of Power Shell.
+- Feel free to follow me and I will follow you back if you need some followers.
